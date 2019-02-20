@@ -1,1 +1,3 @@
 # Odkladanie-Broni-
+
+ss
